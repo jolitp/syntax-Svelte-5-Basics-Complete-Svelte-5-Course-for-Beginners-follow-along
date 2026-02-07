@@ -1,0 +1,1 @@
+# syntax-Svelte-5-Basics-Complete-Svelte-5-Course-for-Beginners-follow-along
